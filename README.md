@@ -1,4 +1,4 @@
-# Hello, I'm Derqui Sanhueza! 👋
+# Hello, my name is Derqui Sanhueza! 👋
 
 ## About Me
 I'm a Computer Science Engineering student with a Bachelor's degree in Science in Engineering. I'm from the beautiful country of Chile. 🇨🇱
