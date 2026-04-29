@@ -7,7 +7,9 @@ My experience in the field of computer engineering is broad and diverse. I have 
 
 Thanks to this experience, I am familiar with a wide range of technologies, which allows me to adapt to different environments and challenges.
 
+
+
 ## Contact Me
-You can reach me at contact@derquisanhueza.cl for any inquiries or opportunities.
+You can reach me at derquisb@gmail.com for any inquiries.
 
 Thanks for stopping by!
